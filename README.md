@@ -1,4 +1,5 @@
-![image](https://user-images.githubusercontent.com/92290739/137152273-a87cc7ae-f6df-4885-907f-5ae87852a1f3.png)
+![TOP UNIVERSITIES IN MALAYSIA](https://user-images.githubusercontent.com/92290739/137157144-d7f413eb-1646-49b2-a8fe-b2d2db9aea28.png)
+
 - 👋 Hi, I’m Asvinitha Muniandy 
 - 👀 I’m interested in graphic and web designing
 - 🌱 I’m currently learning real time programming
